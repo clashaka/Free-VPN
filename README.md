@@ -4,4 +4,4 @@
 
 ![一个免费 VPN 推荐网站](ygpy_net.webp)
 
-[ygpy.net](https://ygpy.net/)
+👉 [ygpy.net](https://ygpy.net/)
