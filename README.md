@@ -4,8 +4,9 @@
 
 ![一个免费 VPN 推荐网站](ygpy_net.webp)
 
-访问网站 [ygpy.net](https://ygpy.net/) 👈  
-联系我们 [Telegram](https://t.me/sxtnbhz) 👈  
+访问网站 [ygpy.net](https://ygpy.net/) 👈
+
+联系我们 [Telegram](https://t.me/sxtnbhz) 👈
 
 ## 📄 主要内容
 
