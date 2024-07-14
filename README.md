@@ -20,3 +20,5 @@
 - 机场推荐每日更新
 - 免费游戏每周更新
 - 网址导航、软件列表不定期更新
+
+© 2024 一个朋友 | [CC BY-NC-ND 4.0](https://creativecommons.org/licenses/by-nc-nd/4.0/?ref=chooser-v1)
